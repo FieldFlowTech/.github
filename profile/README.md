@@ -139,7 +139,7 @@ Four co-founders. All technical.
 
 Private organization. If you found us and want to talk, reach out:
 
-**burgonicholasv@gmail.com**
+
 
 <br>
 
